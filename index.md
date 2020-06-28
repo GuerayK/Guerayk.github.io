@@ -8,3 +8,5 @@ Harry Potter ist eine Kinder- und Jugendromanreihe der englischen Schriftsteller
 * Mutig
 * Ehrenhaft
 * Kämpferisch
+
+> Du bist der, der schwach ist. Du wirst nie wissen, was Liebe ist. Oder Freundschaft. Und deswegen kannst du mir nur leidtun
