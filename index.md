@@ -10,9 +10,3 @@ Harry Potter ist eine Kinder- und Jugendromanreihe der englischen Schriftsteller
 * Kämpferisch
 
 > Du bist der, der schwach ist. Du wirst nie wissen, was Liebe ist. Oder Freundschaft. Und deswegen kannst du mir nur leid tun.
-
-Picture from: https://www.pinterest.com/pin/630926229028493214/
-
-<img src="https://i.pinimg.com/474x/86/19/4e/86194e84f9143368206ec915d5b0490e.jpg"/>
-
-
